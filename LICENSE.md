@@ -1,4 +1,4 @@
-# 
+# Free Nitro PDF plugins for Mac OS | Turbo Nitro PDF plugins for PC Windows. Featuring form filling and receipt scanning — optimized for maximum performance on every platform.
 
 
 
